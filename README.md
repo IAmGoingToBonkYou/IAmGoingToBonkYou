@@ -22,7 +22,7 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
   
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like ta make friends alot, dont be afraid ta approuch meh (aslong as i dont have any dni in my name) i'd also prefer if ya whispered me becuz m usually offtab 
   
-  <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » my typin' quirk is a on and off typa thin' lioke ummmm it comes n goes i caun' really control it reallly whenever u talk to me dont EXPECT me to have it ok? ok.
+  <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » my typin' quirk is a on and off typa thin' lioke ummmm it comes n goes i caun' really control it reallly whenever u talk to me dont EXPECT me ta hav it ok? ok.
 
   
 
