@@ -18,4 +18,7 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 <details align="center">
 
 <summary>ㅤ ${\textsf{\color{#e0e0e0}info bout me}}$ !! </summary
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wit me first, i can be dry and blunt. i dont mean it in any way it just takes a bit for me ta warm up.
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wit me first, i can be dry n blunt. i dont mean it in any way it just takes a bit for me ta warm up ta new peoples.
+
+  <summary>ㅤ ${\textsf{\color{#e0e0e0}info bout me}}$ !! </summary
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like ta make friends alot, dont be afraid ta approuch meh (aslong as i dont have any dni in my name) i'd also prefer if ya whispered me becuz m usually offtab 
