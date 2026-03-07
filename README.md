@@ -11,5 +11,11 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 <p align="center">
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
 
-<p align="center">
-hallo m names ass pancakes but every1 calls me matthew (i prefer pancakes tho ://) m pretty friendly if ya talk ta me, unless i dont have a good feelin' bout ya otherwise i'll probably ignore ya or be agressive/dry in ways i dont mean ta, i enjoy making friends on ponytown if u wanna get ta know mmeeee better then add m discord : brutalsniper (only if i get u permission too) id recommend also reading ma strawpage just incase m not a person ya wanna b interactin wit, also m dni is in there so yaaa
+</div>
+
+</details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#e0e0e0}Some things to know about me}}$ !! </summary
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wiht me first, i can be dry and blunt. i dont mean it in any way it just takes a bit for me ta warm up.
