@@ -10,3 +10,6 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 
 <p align="center">
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
+
+<p align="center">
+hallo my names ass pancakes but every1 calls me matthew (i prefer pancakes tho ://) m pretty friendly if ya talk ta me, unless i dont have a good feelin' bout ya otherwise i'll probably ignore ya or be agressive/dry in ways i dont mean to, i enjoy making friends on ponytown if u wanna get ta know mmeeee better then add m discord : brutalsniper (only if i get u permission too) id recommend also reading ma strawpage just incase m not a person ya wanna b interactin wit me, also my dni is in there so yaaa
