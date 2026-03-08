@@ -53,4 +53,4 @@ i will work on dis later hudgfdggd
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » also if i dont like you i will simply jus hide or block you
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » oversexual pewople. i dont wanna hear u say that ur gonna rape me every 5 minutes
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » oversexual peoples. i dont wanna hear u say that ur gonna rape me every 5 minutes
