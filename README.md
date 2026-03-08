@@ -20,10 +20,12 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 <summary>ㅤ ${\textsf{\color{#e0e0e0}info bout me}}$ !! </summary
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wit me first, i can be dry n blunt. i dont mean it in any way it just takes a bit for me ta warm up ta new peoples.
   
+  
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like ta make friends alot, dont be afraid ta approuch meh (aslong as i dont have any dni in my name) i'd also prefer if ya whispered me becuz m usually offtab 
   
-  <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » my typin' quirk is a on and off typa thin' lioke ummmm it comes n goes i caun' really control it reallly whenever u talk to me dont EXPECT me ta hav it ok? ok.
+  <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » my typin' quirk is a on and off typa thin' like ummmm it comes n goes i caun' really control it reallly. whenever u talk to me dont EXPECT me ta hav it ok? ok.
 
-  
-
+   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » i make alot of jokes that can be seen as urrmm problematic n shit if u dont like it whisp me n lmk ok bcuz i hav no filta n caun' tell when i make peoples uncomfortable
+ 
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like alot of music artists like kmfdm, bloodhound gang, SOFTPLAY, Tom jones, devi mccallion, broadway homestuck, s3rl, Weeser, Self, ayesha erotica, tyler the creator, weird al, will wood, men at work, And one, ICP n glass animals (probably bout 10000 more dat i  didnt name-)
   
