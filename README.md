@@ -130,6 +130,8 @@ i will work on dis later hudgfdggd
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/b6c3afcb7d5815eae8533d67a5d611f8/5ba3085a1cc06b4e-3b/s100x200/71b2ab9c7cfe16212052d905427a22047b0679f0.pnj"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/6e178d32e9fd7c342c32b55ea7126c6b/d74634a811af1b7c-12/s500x750/dfdc89232ddb386afb2dd96a6d23b0a3710b1221.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/ae009bd1ea509bd7b0a152b36463b942/0e37b096a71c77b5-54/s100x200/b44c029ea2eb321995d30962a590669f36de35fd.gifv"></a>
+<a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/c6d6b33428a9e9806e71790915bd2ab0/9f8ce08de8dac5a3-99/s100x200/f7810c8e2c23e5f8127fab1974e20f27e502b7c9.pnj"></a>
+<a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/229ac9425d501d6b087298657a8463bd/63ff69ba64e57f88-17/s100x200/636f970e7ca56beef8f2110bd765fd95fffb5528.gifv"></a>
 
 
 
