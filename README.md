@@ -29,6 +29,6 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
  
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like alot of music artists like kmfdm, bloodhound gang, SOFTPLAY, Tom jones, devi mccallion, broadway homestuck, s3rl, Weeser, Self, ayesha erotica, tyler the creator, weird al, will wood, men at work, And one, ICP n glass animals (probably bout 10000 more dat i  didnt name-)
 
-   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i speak welsh and english, not so much russian but i can understand it, i also have a good translator that i usually use to communicate back ^^!
+   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i speak welsh n english, not so much russian but i can understand it, i also have a good translator that i usually use to communicate back ^^!
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » yu can find me in da english safe server or da russian safe server, i switch thru both frequently n im also at tf2 area or da eddsworld area
