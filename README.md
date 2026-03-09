@@ -39,7 +39,7 @@ i will work on dis later hudgfdggd
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#e0e0e0}Ma dni}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#e0e0e0}Ma dni / thin ice}}$ !! </summary
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » -14, i dont wanna int with children thanks.
 
@@ -48,6 +48,8 @@ i will work on dis later hudgfdggd
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » anti recovery shedtwt,, n other shedtwt users iwec or dni
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » fatphobes. homophobes etc
+
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » scoutirl and their friends ok. 
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » kin doubles iwec or dniuid
 
