@@ -1,4 +1,4 @@
-## idk call me (ass) Pancakes
+## idk call me (ass) Pancakes / snipes
 
 <p align="center">
 $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
