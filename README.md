@@ -32,9 +32,9 @@ i will work on dis later hudgfdggd
 
    <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i speak welsh n english, not so much russian but i can understand it, i also have a good translator that i usually use ta communicate back ^^!
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » yu can find me in da english safe server or da russian safe server, i switch thru both frequently n m also at tf2 area or da eddsworld area
-
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » just a warning. im a very judgemental persons, i talk shit alot about peoples and i tend to make fun of alot of peoples. dont take it ta heart if u find out i talk bad bout you i mostly dont mean it i kust like ta have a giggle with ma friends
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » yu can find me in da english safe server or da russian safe server, i switch thru both frequently n m also at tf2 area or da eddsworld area 
+ 
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » just a warning. im a very judgemental persons, i talk shit alot bout peoples and i tend to make fun of alot of peoples. dont take it ta heart if u find out i talk bad bout you i mostly dont mean it i kust like ta have a giggle with ma friends
 
 
   </details>
