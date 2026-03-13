@@ -34,7 +34,7 @@ i will work on dis later hudgfdggd
  
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » funfact, even tho my entire theme is ass pancakes. Im a heavy sniper kin :)
 
-   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i am trying to recover from being problematic in the past. if you still dont want to interact with me its okay but i am trying to heal for the better, im sorry to everyone that ive mad uncomfortable and upset with how i acted. i promise i will become a better person!
+   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i am trying to recover from being problematic in the past. if you still dont want to interact with me its okay but i am trying to heal for the better, im sorry to everyone that ive made uncomfortable and upset with how i acted. i promise i will become a better person!
   </details>
 
 <details align="center">
