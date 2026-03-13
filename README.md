@@ -45,11 +45,13 @@ i will work on dis later hudgfdggd
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » sniperspy or spyscout fans. I hate you guys so much ewww
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » anti recovery shedtwt,, n other shedtwt users iwec or dni
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » anti recovery shedtwt,, n other shedtwt users dni
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » fatphobes. homophobes, racists, pedos, VERY problematic people
+   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » darkshippers and proshippers you all weird asl 
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » scoutirl and their friends pls int with extra caution ok. 
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » fatphobes. homophobes, racists, pedos, VERY problematic people, people who contantly make innapropriate jokes when some1 is clearly uncomfortable, just rude people that cant tell when theyve upset some1
+
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » bfdi and other object shows dni or int with caution. you people are all rude
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » kin doubles iwec or dniuid
 
